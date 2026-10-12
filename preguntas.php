@@ -1,7 +1,7 @@
 
 
 
-Prguntas modifs 4
+Prguntas mod 4
 Prguntas
 Prguntas
 Prguntas

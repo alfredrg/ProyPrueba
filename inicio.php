@@ -1,6 +1,6 @@
 
 
-Inicio modifs 4
+Inicio mod 4
 Inicio
 Inicio
 Inicio
